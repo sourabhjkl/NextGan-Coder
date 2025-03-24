@@ -1,2 +1,3 @@
-# NextGan-Coder
-Hello apna collage to univeresity
+NextGan Coder
+Hellow sir paelse subscribe my youtube chenal and apna coder 
+<br> SOURABH CODER
